@@ -1,3 +1,3 @@
 # supersecretproject
 
-readme editted file HAHA
+Super Secret project by me Zom <3
